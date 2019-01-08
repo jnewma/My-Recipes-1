@@ -1,7 +1,7 @@
 # [Confit Biyaldi](https://www.bingingwithbabish.com/recipes/2017/5/5/ratatouille)
 *(Inspired by [Ratatouille](https://www.imdb.com/title/tt0382932/))*
 
-![image of man's arms making a meal](https://i.imgur.com/IQoUREX.jpg)
+![image of man's arms making the meal](https://i.imgur.com/IQoUREX.jpg)
 
 ## Ingredients
 * 6 large roma tomatoes, divided
